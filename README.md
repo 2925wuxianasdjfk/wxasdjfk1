@@ -12,7 +12,7 @@
 
 
 
-# 2、Express [Express官网地址，需翻墙后打开](https://www.xvbelink.com/black-friday-cyber-monday?a_fid=tizi_vpn&chan=adan&data1=tizi)
+# 2、Express [Express官网地址，需翻墙后打开](https://www.xvbelink.com/black-friday-cyber-monday?a_fid=tizi_vpn&chan=2925wuxianasdjfk&data1=wxasdjfk1)
 ✅ 多年评为全球服务第一，除了贵没别的毛病，30天内无理由退款
 
 ✅ 近期有活动，1年套餐赠送3个月时长
